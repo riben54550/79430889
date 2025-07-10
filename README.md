@@ -16,4 +16,4 @@
 
 无须注册，操作简便，适合所有热爱日本AV的用户。期待您体验我们带来的极致观看享受。
 
-<span style="display:none;">[Canonical link]( https://github.com/ribenyi1021/79430889 ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/riben54550/79430889 ）</span>
